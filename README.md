@@ -28,3 +28,12 @@ Happy Birthday Elise!
 - Sugar
 - Bourbon
 - Bitters
+
+
+## Lymric
+Here I sit with my pistachio
+Sipping my pline's, hosting my peeps yo
+Happy Birthday Elise
+May the parties increase
+Crossfit and turkish, learning to flow
+ 
